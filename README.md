@@ -2002,6 +2002,12 @@ licăreț--sfânt licăritor---luminos licărit—luminat
 
 meteahnă--lipsă-nevoie teahnă-obicei năzui--a cere, dori, tinde, a îî trebui ceva 
 
+Dacă
+a dezbăra=a lăsa
+încăibăra= a cățăra
+rădăcina PIE *bher- (a purta/a căra). În albaneză, cuvântul exact pentru transport este bartje (de la verbul bart = a purta, a transporta încărcătura). În lituaniană avem cognatul berti.
+atunci a băra/bărta= a purta/transporta
+
 cuvinte naturalizate din româna: A pune -- a vune/văne zbici/ushăvi---usca 
 
 a dua/duiri---pentru a dori Imperfect * Eu doiam (doream / aveam dor) * Tu doiai (doreai) * El / Ea doia (dorea) * Noi doiam (doream) Trecut * Eu deșei (am dorit / am vrut) 
