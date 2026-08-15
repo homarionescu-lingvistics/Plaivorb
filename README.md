@@ -1,6 +1,6 @@
 # **Relexificarea Cognitivă și Structura Lexicală a unui Conlang Balcanic: O Abordare Comparativă Traco-Daco-Ilir** 
 
-Bulgara-traci, română-daci, albaneză/shkiperi–iliră de adăugat denumiri de ări în felul în care ar fi denumit daci, amerindieni sau alte popula i.ț ț **Principiile Relexificării și Asocierile Semantice în** 
+Bulgara-traci, română-daci, albaneză/shkiperi–iliră de adăugat denumiri de țări în felul în care ar fi denumit daci, alte popula i.ț ț **Principiile Relexificării și Asocierile Semantice în** 
 
 ## **Spațiul Balcanic** 
 
